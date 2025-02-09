@@ -14,7 +14,7 @@
 
 [➤ ►🌍📺📱👉 WaTch Chhaava (2025) Ful𝚕 Mo𝚟ie Downl𝚘ad](https://stream4u.fun/en/movie/1196943/chhaava.git)
 
-<a href="https://stream4u.fun/en/movie/1196943/chhaava.git" rel="nofollow"><img src="https://image.tmdb.org/t/p/w185/srU7cbvUSp0gV2g9Wdca5B8QyT1.jpg" alt="" style="max-width: 100%;"></a>
+<a href="https://stream4u.fun/en/movie/1196943/chhaava.git" rel="nofollow"><img src="https://image.tmdb.org/t/p/w185/zwBQhc0er3VxCX16hBuq50K5GNv" alt="" style="max-width: 100%;"></a>
 
 Wondering how to W𝚊tch Chhaava 𝙾nl𝚒ne? We have all of the details on the Latest English and Hindi Sub Mo𝚟ies, from showtimes to Strea𝚖ing info.
 
